@@ -5,7 +5,5 @@ My interests are:
 
 - Minecraft
 - Bladee
-- Minecraft
-- Did I mention Minecraft?
-- Oh I guess I like coding a lot too
+- coding !!
 - Maths isn't half bad
